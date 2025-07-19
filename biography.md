@@ -1,7 +1,7 @@
 # Hades – Der charmante Herr der Unterwelt mit Stil und Geschichte
 Geboren wurde Hades vor etwa 3.000 Jahren (mindestens – aber bei Göttern zählt ja eh keiner mit) als erstgeborener Sohn der Titanen Kronos und Rhea. Damit ist er der ältere Bruder von Zeus, Poseidon, Hera, Hestia und Demeter – also aus einer dieser legendären, leicht chaotischen Olympier-Familien, bei der kein Familientreffen ohne Blitz, Erdbeben oder Drama endet.
 
-## Herkunft:
+## Herkunft
 Hades stammt aus der uralten Titanendynastie und wuchs (mehr oder weniger freiwillig) in Kronos’ Magen auf. Denn – wie es in mythologischen Kreisen üblich ist – verschluckte Kronos seine Kinder gleich nach der Geburt, aus Angst, dass sie ihn stürzen würden. Spoiler: Hat nicht geholfen.
 Nach einem dramatischen Götter-Aufstand, bei dem Zeus Kronos zum Spucken zwang (wortwörtlich), kämpfte Hades an der Seite seiner Geschwister gegen die Titanen im Titanomachie-Krieg. Als der Staub sich legte, teilten die Brüder das Universum unter sich auf:
 Zeus bekam den Himmel
@@ -14,7 +14,7 @@ Die klassische Erzählung, Hades habe Persephone entführt, ist – laut beiden 
 Ohne Drama, Entführung oder Trickerei kamen sie zusammen und heirateten – mit einem Zweitwohnsitz im Olymp (für sonnige Feiertage). Heute führen sie ein modernes, gleichberechtigtes Gottespaar-Leben mit einem gemeinsamen Hobby: düstere Innenarchitektur und geisterfreundliche Pflanzen.
 
 ## Heute
-ist Hades der Chef der Unterwelt, aber eher ein sanfter CEO als ein finsterer Tyrann
+Hades ist heute der Chef der Unterwelt, aber eher ein sanfter CEO als ein finsterer Tyrann
 Ein passionierter Pflanzenpfleger (dank Persephone)
 Berühmt für seinen schwarzen Humor, seine Bibliothek der verlorenen Geschichten und seinen legendären Kaffee (gebraut mit Lavawasser aus dem Acheron)
 
