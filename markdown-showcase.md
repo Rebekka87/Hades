@@ -25,7 +25,7 @@
 
 ## **5. Haustier (ehrenhalber erwähnt)**
 
-* ![Cerberus](https://static3.cbrimages.com/wordpress/wp-content/uploads/2019/10/Lore-Olympus-feature.jpg) – Der dreiköpfige Höllenhund, Wächter der Unterwelt (nicht verwandt, aber wichtig!)
+![Cerberus](https://static3.cbrimages.com/wordpress/wp-content/uploads/2019/10/Lore-Olympus-feature.jpg) – Der dreiköpfige Höllenhund, Wächter der Unterwelt (nicht verwandt, aber wichtig!)
 
 ## **6. Neffen und Nichten**
 | Zeus | Poseidon | Demeter | Hera (ohne Zeus) |
