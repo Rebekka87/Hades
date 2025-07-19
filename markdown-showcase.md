@@ -1,3 +1,7 @@
+# `"Im Himmel ist Party, im Meer ist Chaos – und in der Unterwelt? Ruhe. Kein Wunder, dass Hades der Einzige mit gesundem Blutdruck ist."`
+
+**(Persephone, wahrscheinlich beim Teetrinken mit Demeter)**
+
 # Stammbaum
 ## **1. Ursprung (Ureltern)**
 * Chaos (Urzustand des Universums)
