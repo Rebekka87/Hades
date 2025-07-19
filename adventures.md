@@ -36,7 +36,7 @@ Hades seufzte. „Ich hab hier schon genug steife Kunden. Wenigstens kannst du s
 „Nur wenn sie mir ein Kompliment machen, das nicht über meine Haare ist.“
 Drei Jahrhunderte später hatte niemand mehr gesprochen.
 
-## 6. **Hades und Persephone: Der Thermomix des Tode**
+## 6. **Hades und Persephone: Der Thermomix des Todes**
 
 Hades war einsam. Die Unterwelt war groß, still und – wenn wir ehrlich sind – schlecht eingerichtet. Als er sich in Persephone verliebte, wusste er: Wenn er sie für sechs Monate im Jahr behalten durfte, musste er sie beeindrucken.
 „Ich hab dir... ein Geschenk gemacht“, sagte Hades nervös. „Etwas Praktisches. Etwas... modern.“
